@@ -1,6 +1,6 @@
 # Rog
 
-Rasse: Kolo
+Rasse: Kholo
 Klasse: Barde
 
 ## Sonstige Informationen
