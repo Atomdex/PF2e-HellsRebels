@@ -17,3 +17,5 @@ Pass gut auf dich auf, lieber Rutherford. Ich freue mich schon auf deinen nächs
 In herzlicher Verbundenheit,
 
 **deine Gudlinde**
+
+- Ex-Frau von Rutherford
